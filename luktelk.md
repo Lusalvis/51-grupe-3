@@ -14,3 +14,11 @@ Ar aš vis dar gyvas?
 Ar tebepažįsti mane?
 Saulė nepakyla
 Pasakyk, ar liksi šalia?
+
+Luktelk, luktelk
+Dar vieną minutę luktelk
+Luktelk, luktelk
+Dar vieną minutę luktelk
+
+Naktis viena, naktis kita
+Kaip visada, aš vėl iš naujo
