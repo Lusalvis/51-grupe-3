@@ -31,3 +31,18 @@ Ar tebepažįsti mane?
 Saulė nepakyla
 Pasakyk, ar liksi šalia?
 
+Luktelk, luktelk
+Dar vieną minutę luktelk
+Luktelk, luktelk
+Dar vieną minutę luktelk
+
+Stovime tyloje grojančio radio
+Nebenoriu šokt, nebenoriu šokt
+Stovime tyloje grojančio radio
+Nebenoriu šokt, bet man reikia šokt
+
+Ar aš vis dar gyvas?
+Ar tebepažįsti mane?
+Saulė nepakyla
+Pasakyk, ar liksi šalia?
+
