@@ -22,3 +22,12 @@ Dar vieną minutę luktelk
 
 Naktis viena, naktis kita
 Kaip visada, aš vėl iš naujo
+
+Rytoj, rytoj, rytoj
+Pažadu mylėt tave rytoj
+
+Ar aš vis dar gyvas?
+Ar tebepažįsti mane?
+Saulė nepakyla
+Pasakyk, ar liksi šalia?
+
