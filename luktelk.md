@@ -46,3 +46,10 @@ Ar tebepažįsti mane?
 Saulė nepakyla
 Pasakyk, ar liksi šalia?
 
+Luktelk, luktelk
+Dar vieną minutę luktelk
+Luktelk, luktelk
+Dar vieną minutę luktelk
+
+
+Songwriters: Karolis Labanauskas, Linas Strockis, Dzesika Syvokaite, Silvestras Belte, Elena Jurgaitytė. For non-commercial use only.
